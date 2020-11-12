@@ -1,2 +1,2 @@
 # Portfolioh-zi
-NK:R695RU;Gépinfóházi
+Üdvözlök mindenkit a Weboldalamon!
